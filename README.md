@@ -16,7 +16,7 @@
 
 - 📫 How to reach me **ddeena832004@gmail.com**
 
-- 📄 Know about my experiences [https://www.canva.com/design/DAFPZirlvTI/liJciaZpvL6vmHTkO_RzzA/edit](https://www.canva.com/design/DAFPZirlvTI/liJciaZpvL6vmHTkO_RzzA/edit)
+- 
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
